@@ -1,1 +1,1 @@
-# imgage to sketch 
+# image to sketch 
